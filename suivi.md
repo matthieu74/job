@@ -28,3 +28,13 @@
 > cv envoyé
 > rdv tél mercredi 24/11 (à confirmer de mon coté)
 
+# Objectware #
+* Laure
+> à rappeler 06 19 59 37 40
+j'ai du recevoir un mail
+
+# groupe opem #
+06 80 47 54 30
+
+
+# Lexi finance #
