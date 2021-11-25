@@ -75,6 +75,7 @@ Christelle DA SILVA
 # KIA #
 Mme Maria
 06 68 71 06 51
+
 # AMD Consulting #
 Claire Bourri
 01 53 43 82 45
@@ -109,4 +110,17 @@ Mr Racon
 * Badis Khellafi
 06 58 02 49 39
 > cv envoyé
+> j'attends son retour
+
+# Extia #
+* Chloé Lucas
+06 98 42 64 76
+> cv envoyé linkedIn
+> j'attends son retour
+
+
+# Badenoch + Clark #
+* Christophe Denivel DAVID
+06.13.86.04.31
+> cv envoyé linkedIn
 > j'attends son retour
