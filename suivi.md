@@ -49,6 +49,8 @@ Caroline Houzard
 * Laure
 > à rappeler 06 19 59 37 40
 j'ai du recevoir un mail
+> bon contact tél
+> renvoyer mon cv
 
 # groupe open #
 Mme seta touti
