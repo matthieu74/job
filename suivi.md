@@ -104,3 +104,9 @@ Mr Racon
 07 87 19 56 07
 > cv envoyé
 > j'attends son retour
+
+# Devoteam #
+* Badis Khellafi
+06 58 02 49 39
+> cv envoyé
+> j'attends son retour
