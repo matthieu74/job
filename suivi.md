@@ -98,3 +98,9 @@ Mme Jeanias
 # Groupe RSC #
 Mr Racon
 06 86 42 88 12
+
+# MCA Ingénierie #
+* Amandine ROUDIER
+07 87 19 56 07
+> cv envoyé
+> j'attends son retour
