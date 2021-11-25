@@ -124,3 +124,8 @@ Mr Racon
 06.13.86.04.31
 > cv envoyé linkedIn
 > j'attends son retour
+
+# ATLANSE #
+* Ida ZOCLI
+> cv envoyé gmail
+> j'attends son retour
