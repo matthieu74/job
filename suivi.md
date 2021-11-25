@@ -63,6 +63,8 @@ Mme ?
 Mme ?
 06 50 72 57 43
 SSII pour C++ banque finance
+> petite SSII 50 personnes, très bon contact
+> >je dois renvoyer mon cv en réponse à son mail
 
 # Acensi #
 Mr Gilbert ?
