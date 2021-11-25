@@ -92,8 +92,8 @@ Katherine CHURCHILL
 Mme du chateau ?
 06 72 90 93 22
 
-# high team #
-Mme Jeanias 
+# HIGHTEAM #
+Mme Cidji Ignace
 07 56 27 39 46
 
 # high team #
