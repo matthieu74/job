@@ -82,7 +82,7 @@ Claire Bourri
 SSII : 
 
 # AMD Consulting #
-Catherine ? Sancho ?
+Katherine CHURCHILL
 06 50 27 11 70
 
 # BK consulting #
