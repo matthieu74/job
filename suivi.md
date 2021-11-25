@@ -50,8 +50,8 @@ Caroline Houzard
 > à rappeler 06 19 59 37 40
 j'ai du recevoir un mail
 
-# groupe opem #
-Mme ?
+# groupe open #
+Mme seta touti
 06 80 47 54 30
 
 # Lexi finance #
